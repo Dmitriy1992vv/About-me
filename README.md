@@ -4,4 +4,4 @@
 
 # По специальности я [юрист](https://av-saimincekas.com/wp-content/uploads/2019/01/Yabanci-Mahkeme-Kararinin-Turkiyede-Taninmasi.jpg)
 
-# Сейчас хочусменить сферу профессиональной деятельности, поэтому пошел учиться в [Нетологию](https://netology.ru/)
+# Сейчас хочу сменить сферу профессиональной деятельности, поэтому пошел учиться в [Нетологию](https://netology.ru/)
